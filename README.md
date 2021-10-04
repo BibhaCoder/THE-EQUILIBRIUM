@@ -1,4 +1,4 @@
-THE BALANCE: a common sense
+THE BALANCE: a language of common sense
 ____________________________
 
 THE BALANCE is solution to evey problem in our life and our universe. The secret of a successful and fulfilling life is to achieve a healthy balance between various elements, thoughts and philosophies available in the universe. As the earth's balanced distance(not too far and not too close) from the sun ensures flourishing of diverse life and ecosystem on earth, similarly a healthy balance between dark matter and dark energy ensures survival of our very own universe. Similarly for a successful and fulfilling life we need to maintain a healthy balance in our life and avoid extremes of anything.

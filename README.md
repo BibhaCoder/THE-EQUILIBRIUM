@@ -10,3 +10,4 @@ THE BALANCE can help us to find solution of our very problems. Anyone who wants 
 If we carefully observe around us we can see THE BALANCE at work everywhere. In human body perfect health comes from balance between various elements. Natural ecosystems survive and thrive because of THE BALANCE between various elements. In universe we see THE BALANCE ar work everywhere and wherever THE BALANCE is not working we see destructions.
 
 Copyright (c) 2013 BibhaCoder(https://github.com/BibhaCoder). All rights reserved.
+----

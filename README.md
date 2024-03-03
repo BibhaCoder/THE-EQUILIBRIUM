@@ -7,7 +7,7 @@ Every star in our universe shines because of the balance between its massive gra
 
 THE BALANCE can help us to find solution of so many of our everyday problems. Anyone who wants to live a long life filled with health, wealth, wisdom and vitality(**ALIVE**)requires THE BALANCE. Whenever there is a problem and our mind gets stretched between two thoughts most of the time the solution lies in the middle(THE BLANCE) of both the thoughts.
 
-If we carefully observe around us we can see THE BALANCE at work everywhere. In human life perfect health comes from balance between various elements. Natural ecosystems survive and thrive because of THE BALANCE between various elements. In universe we see THE BALANCE is at work everywhere.
+If we carefully observe around us we can see THE BALANCE at work everywhere. In human life perfect health comes from balance between various elements. Natural ecosystem survives and thrives because of THE BALANCE between various elements. In universe we see THE BALANCE is at work everywhere.
 
 Copyright (c) 2013 BibhaCoder(https://github.com/BibhaCoder). All rights reserved.
 ----
